@@ -1,2 +1,1 @@
----> New to programming! :D 
---> I have zero knowledge about programming 👀
+- Hi, name is cole. Im goated
