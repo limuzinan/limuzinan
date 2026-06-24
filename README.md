@@ -1,6 +1,6 @@
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟 𖧁𝒞 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 .
   𓏲⠀ ：ྀི    cis      male⠀⠀ e ⠀ ̣̣̣ ͜𓏫
-  ۪    𓏼 ͜͜✚     e   .     he╱ him⠀! ⠀⠀⠀⠀.
+  ۪  𓏼 ͜͜✚     e   .     he╱ him⠀! ⠀⠀⠀⠀.
 
- ⠀⠀⠀⠀⠀⠀：colee.atabook.org —⠀⠀　𓏴⠀ ⁰⁰ ⁰⁰
+ ⠀⠀：„god of the ashes” —⠀⠀　𓏴⠀ ⁰⁰ ⁰⁰
