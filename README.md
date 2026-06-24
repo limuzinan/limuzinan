@@ -33,6 +33,32 @@
 • Helluva Boss/ Hazbin Hotel fans
 • Dandy's world fans
 </p>
+<h2 align="center">
+  <h2 align="center">
+    <img src="https://64.media.tumblr.com/62248d621375b0f78c8663c157164d26/779aa251fd339498-02/s1280x1920/dfd88bd1f7f603017aaf7a27971d235f608029c1.pnj" alt="Repository Banner" width="100%">
+</p> 
+  INT LIST
+  <img src="https://i.imgur.com/5YTDt3g.gif" width="25" alt="icon">
+</h2> 
+  </h2>
+</h2> 
+  <p align= "center" >
 <p align="center">
+• Invincible 
+• Wolfenstein
+• The Boys
+• ATSV 
+• Postal 
+• Manhunt 
+• Duke Nukem 
+• RDR2
+• DC
+• etc..etc..
+• feel free to sit, whisper, or C+H!
+‎ 
+‎ 
+  ‎ 
   <img src="https://64.media.tumblr.com/e200dc4ff4d07971de28b48dc48c45a4/08a4b7f3ef119ca1-3d/s640x960/7c2d94ae30fcb857d24cb389fbe81a24033681bc.pnj" alt="Repository Banner" width="100%">
 </p> 
+
+  
