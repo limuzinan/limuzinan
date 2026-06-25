@@ -1,6 +1,9 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/cda761e2cb510269a2b3961da5d0be96/08a4b7f3ef119ca1-a9/s2048x3072/e193a690514e12f8fe20d1c4c50f0941e40ef4fd.pnj" alt="Repository Banner" width="100%">
 </p> 
+<p align="center">
+  <a href="https://en.pronouns.page/@nowhereast">prns page</a> •
+  <a href="https://colee.atabook.org/">新book</a> 
  <h2 align="center">
   <h2 align="center">
   ABOUT ME
